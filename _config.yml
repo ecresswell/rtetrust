@@ -1,0 +1,25 @@
+title:            Ron Tickner Educational Trust
+description:      The Ronald Tickner Educational Trust exists to advance the study of music by the provision of a bursary or bursaries to organ scholars or piano accompanists who should be born, educated or domiciled in the County of Somerset.
+url:              # Site url, without a slash at the end.
+signoff:          # Your name.
+disqus_shortname: # disqus comment thread for post header options. ( leave blank if unwanted. )
+facebook_appid:   # appid for like button, remove from /_includes/share.html if unwanted.
+google_analytics: UA-38194235-1
+
+links:
+  - name:         WHAT THE TRUST OFFERS
+    url:          /
+  - name:         THE TRUST
+    url:          /the-trust
+  - name:         RON TICKNER
+    url:          /ron-tickner
+  - name:         TAPA
+    url:          /tapa
+  - name:         TAUNTON FESTIVAL
+    url:          /taunton-festival
+highlighter:      pygments
+permalink:        pretty
+markdown:         redcarpet
+redcarpet:
+  extensions:
+    - smart
