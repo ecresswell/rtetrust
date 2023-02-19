@@ -11,12 +11,12 @@ links:
     url:          /
   - name:         THE TRUST
     url:          /the-trust
-  - name:         RON TICKNER
-    url:          /ron-tickner
-  - name:         TAPA
-    url:          /tapa
-  - name:         TAUNTON FESTIVAL
-    url:          /taunton-festival
+  - name:         RONALD TICKNER
+    url:          /ronald-tickner
+  - name:         EVENTS
+    url:          /events
+  - name:         TAUNTON FESTIVAL AND TAPA
+    url:          /taunton-festival-and-tapa
 highlighter:      rouge
 permalink:        pretty
 markdown:         kramdown

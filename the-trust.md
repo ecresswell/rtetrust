@@ -3,22 +3,21 @@ layout: page
 title: The Trust
 ---
 
-### Trustees
+### TRUSTEES
 
-- Nancy Beveridge (Chair)
+- Hilary Marshall (Chair)
 - Andrew Lewis (Hon Treasurer)
-- Ronald Hayman
-- Paul Brierley
+- Nancy Beveridge
+- David Bridges
+- Andrew Carter
+- Rachael Parvin
+- Miles Quick
+- Frances Webb
 
-### Advisors
+### FRIENDS OF THE TRUST
 
-- Brian Cresswell (Secretary to the Trustees)
-- John Lee (Minute Secretary)
-- Rev Rod Corke (St Mary Magdalene)
-- Hilary Marshall (Somerset Opera, TAPA)
-- Jean Lee (Choristers, St Mary Magdalene)
+The Trust invites individuals to contribute a minimum sum of £10 per year to support the Trust. In return, Friends of the Trust will be invited to all events promoted by the Trust. To become a Friend please email <rtetrust@gmail.com>.
 
-### Friends Of The Trust
+To contact the Trust please email <rtetrust@gmail.com>.
 
-The Trust is pleased to announce the formation of a Friends of the Trust scheme. Friends are requested to contribute a minimum sum of £10 per year for which they will receive the Newsletters, and reduced entry fees for all events promoted by the Trust.
-To express interest please email <rtetrust@gmail.com>
+**Registered Charity Number:** 1084561
