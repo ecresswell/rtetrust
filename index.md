@@ -22,7 +22,7 @@ Please complete either of the following bursary application forms:
 
 [Bursary application form for organists and collaborative pianists under 25 years of age](https://docs.google.com/forms/d/e/1FAIpQLSdmRTYuv2-P-NY6ebWQF3SevrnPaNKRFzrzALuV1WuDGq0NUw/viewform?usp=sf_link)
 
-[Bursary application form for choristers of Taunton Minster](https://docs.google.com/forms/d/e/1FAIpQLSdmRTYuv2-P-NY6ebWQF3SevrnPaNKRFzrzALuV1WuDGq0NUw/viewform?usp=sf_link)
+[Bursary application form for choristers of Taunton Minster](https://docs.google.com/forms/d/e/1FAIpQLScrt1f__Y_QG7Bdm2_ShMVtEVQj3p1_LmsJo72pt3JO6JkX6Q/viewform?usp=sf_link)
 
 Your application will be assessed by the Trustees at the next meeting of the Trust. The Trustees meet a minimum of three times per year. You will hear from the Trust with the
 outcome of your application as soon as possible after the assessment has been completed. 
