@@ -16,6 +16,10 @@ Applicants should
 - have achieved at least Grade 5 in the proposed study (this requirement does not apply to the choristers of Taunton Minster)
 - expect to contribute to music in the community in Somerset by arrangement with the Trust whilst they are in receipt of a bursary from the Trust
 
+### WHAT IS A COLLABORATIVE PIANIST?
+
+Any pianist who is not playing alone is a collaborative pianist. Collaborative pianists have a unique set of skills as they perform in recitals with singers and instrumentalists, in four-hand or two-piano duos, in piano trios and quartets, and with orchestras and choirs. The road to perfecting their unique skills is largely unmapped, hence the Trust’s desire to support collaborative pianists.
+
 ### HOW TO APPLY
 
 Please complete either of the following bursary application forms:
