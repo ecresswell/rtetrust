@@ -11,14 +11,18 @@ If you would like to sponsor an event, please contact the Trust by emailing <rte
 
 ### Future events:
 
-Sunday 16 July 2023 at 5pm, Summer Extravaganza at [Taunton Minster](https://www.tauntonminster.org/). 
-Details to follow.
+Saturday 21 December 2024 at 10.30am–1pm, Carolathon at [Taunton Minster](https://www.tauntonminster.org/). Details to follow.
 
-Saturday 16 December 2023 10.30am – 4pm, Carolathon at [Taunton Minster](https://www.tauntonminster.org/). 
-Details to follow.
+A Saturday in February/March 2025 at 3pm, Rising Stars Concert at [Taunton Minster](https://www.tauntonminster.org/). Details to follow.
+
+Sunday 26 April 2025 at 11am– 1pm, International Organ Day at [St John's Church, Taunton](https://www.stjohnstaunton.org.uk/). Details to follow.
 
 
 ### Past events:
+
+Sunday 16 July 2023 at 5pm, Summer Extravaganza at [Taunton Minster](https://www.tauntonminster.org/). 
+
+Saturday 16 December 2023 10.30am – 4pm, Carolathon at [Taunton Minster](https://www.tauntonminster.org/). 
 
 Saturday 25 February 2023 at 3pm, Ronald Tickner Anniversary Concert at [Taunton Minster](https://www.tauntonminster.org/). 
 Celebrating the Trust’s 22nd birthday, performers were past and present award holders including soprano singer Josephine Cresswell, organist Ashley Marshfield, flute player Ruth Hancock, clarinettist Scarlett Atherton, pianist Liam Atherton, oboist and pianist Henry Collard-Jenkins. Piano accompanist Andrew Carter. 

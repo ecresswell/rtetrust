@@ -9,6 +9,12 @@ It exists to advance the study of music by the provision of bursaries to organis
 
 The Trust also provides bursaries for the choristers of Taunton Minster (St Mary Magdalene Church, Taunton) for the study of piano, organ, singing and other instrumental lessons.
 
+Bursaries of £100 per person per term may be awarded towards tuition fees, course fees, and sheet music costs, but not music exam fees. In exceptional circumstances the Trust will use its discretion to increase a bursary award. 
+
+The bursary award will be paid direct to the parent/carer (or direct to the applicant if aged 18-25) upon receipt of a progress report from the student's teacher, which will be requested by the Trust near the end of each school term. 
+
+The bursary amount will be reviewed annually, as will the application of each award holder.
+
 Applicants should
 
 - be born, educated or domiciled in the County of Somerset
@@ -33,6 +39,6 @@ outcome of your application as soon as possible after the assessment has been co
 
 Eligible applicants will be invited to play 2 – 3 pieces in an audition, which will take place at Taunton Minster by arrangement with at least two Trustees.
 
-Please note that, if your application is successful, the Trust will request a written report from your teacher at the end of each term, as the Trust monitors the progress of award-holders.
+Please note that, if your application is successful, the Trust will request a written report by your teacher at the end of each term, as the Trust monitors the progress of award-holders. 
 
 If you have any difficulty completing the form, please email <rtetrust@gmail.com> to arrange support.
