@@ -6,9 +6,9 @@ title: The Trust
 ### TRUSTEES
 
 - Hilary Marshall (Chair)
-- Andrew Lewis (Hon Treasurer)
+- Andrew Lewis
 - Nancy Beveridge
-- David Bridges
+- David Bridges (Hon. Treasurer)
 - Andrew Carter
 - Rachael Parvin
 - Miles Quick
