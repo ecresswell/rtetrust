@@ -12,7 +12,6 @@ title: The Trust
 - Andrew Lewis
 - Rachael Parvin
 - Miles Quick
-- Frances Webb
 
 ### FRIENDS OF THE TRUST
 
