@@ -15,7 +15,7 @@ Saturday 15 November 2025 Somerset Organ Day at [St John’s Church](https://www
 
 Saturday 20 December 2025 at 10.30am–1pm, Carolathon at [Taunton Minster](https://www.tauntonminster.org/).
 
-Saturday 14 February 2026 at 3pm, Rising Stars Concert at [Taunton Minster](https://www.tauntonminster.org/).
+Saturday 21 February 2026 at 3pm, Rising Stars Concert at [Taunton Minster](https://www.tauntonminster.org/).
 
 
 ### Past events:
