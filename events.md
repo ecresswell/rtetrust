@@ -10,19 +10,17 @@ If you would like to sponsor an event, please contact the Trust by emailing <rte
 
 ### Future events:
 
-Saturday 25 April 2026 International Organ Day - details to follow.
-
-Saturday 18 July 2026 at 3pm, Trustees Concert at [Taunton Minster](https://www.tauntonminster.org/).
+Saturday 25 April 2026 'Come & Play' on International Organ Day - details to follow.
 
 Saturday 21 November 2026 Somerset Organ Day - details to follow.
 
 ### Past events:
 
-Saturday 21 February 2026 at 3pm, Rising Stars Concert at [Taunton Minster](https://www.tauntonminster.org/).
+Saturday 21 February 2026 at 3pm, Rising Stars Concert at Taunton Minster.
 
-Saturday 20 December 2025 at 10.30am–1pm, Carolathon at [Taunton Minster](https://www.tauntonminster.org/).
+Saturday 20 December 2025 at 10.30am–1pm, Carolathon at Taunton Minster.
 
-Saturday 15 November 2025 Somerset Organ Day at [St John’s Church](https://www.stjohnstaunton.org.uk/), Taunton, from 11am – 1pm AND at [Taunton Minster](https://www.tauntonminster.org/) from 2pm – 4pm.
+Saturday 15 November 2025 Somerset Organ Day at St John’s Church, Taunton, from 11am – 1pm AND at Taunton Minster from 2pm – 4pm.
 
 Saturday 21 June 2025 at 3pm, Tea-time Concert at Taunton Minster featuring Trustees of the Trust.
 
