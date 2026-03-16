@@ -10,7 +10,7 @@ If you would like to sponsor an event, please contact the Trust by emailing <rte
 
 ### Future events:
 
-Saturday 25 April 2026 'Come & Play' on International Organ Day - details to follow.
+Friday 8 May 2026 at 12.45pm Eric Tebbett & Katie Gange, accompanied by Andrew Carter, perform a lunchtime concert of 'Songs from the Shows', organised by St John's Church, Taunton, with retiring collection in aid of Ronald Tickner Educational Trust and the church, at [St John's Church, Taunton](https://www.stjohnstaunton.org.uk/).
 
 Saturday 21 November 2026 Somerset Organ Day - details to follow.
 
