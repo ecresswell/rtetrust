@@ -5,15 +5,15 @@ title: What the Trust Offers
 
 The Ronald Tickner Educational Trust was formed in 2000 to commemorate Ron Tickner’s legacy of encouraging young musicians.
 
-It exists to advance the study of music by the provision of bursaries to organists or collaborative pianists from Somerset.
+It exists to advance the study of music by the provision of bursaries to organists or collaborative pianists from Somerset who otherwise might not be able to progress their studies.
 
-The Trust also provides bursaries for the choristers of Taunton Minster (St Mary Magdalene Church, Taunton) for the study of piano, organ, singing and other instrumental lessons.
+The Trust also provides bursaries for the choristers of Taunton Minster (St Mary Magdalene Church, Taunton), for the study of piano, organ, singing and other instrumental lessons, who otherwise might not be able to progress their studies.
 
-Bursaries of £100 per person per term may be awarded towards tuition fees, course fees, and sheet music costs, but not music exam fees. In exceptional circumstances the Trust will use its discretion to increase a bursary award. 
+Bursaries of up to £100 per person per term may be awarded towards tuition fees, course fees, and sheet music costs, but not music exam fees. In exceptional circumstances the Trust will use its discretion to increase a bursary award. 
 
 The bursary award will be paid direct to the parent/carer (or direct to the applicant if aged 18-25) upon receipt of a progress report from the student's teacher, which will be requested by the Trust near the end of each school term. 
 
-The bursary amount will be reviewed annually, as will the application of each award holder.
+The bursary amount will be reviewed at least once per year as will the bursary application of each award holder.
 
 Applicants should
 

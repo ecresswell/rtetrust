@@ -10,11 +10,13 @@ If you would like to sponsor an event, please contact the Trust by emailing <rte
 
 ### Future events:
 
-Friday 8 May 2026 at 12.45pm Eric Tebbett & Katie Gange, accompanied by Andrew Carter, perform a lunchtime concert of 'Songs from the Shows', organised by St John's Church, Taunton, with retiring collection in aid of Ronald Tickner Educational Trust and the church, at [St John's Church, Taunton](https://www.stjohnstaunton.org.uk/).
-
 Saturday 21 November 2026 Somerset Organ Day - details to follow.
 
+Saturday 19 December 2026 Carols for all at Taunton Minster - details to follow.
+
 ### Past events:
+
+Friday 8 May 2026 at 12.45pm Songs from the Shows by Eric Tebbett & Katie Gange, accompanied by Andrew Carter, at St John's Church, Taunton.
 
 Saturday 21 February 2026 at 3pm, Rising Stars Concert at Taunton Minster.
 
